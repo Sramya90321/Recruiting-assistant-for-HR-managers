@@ -1,1 +1,0 @@
-# Recruiting-assistant-for-HR-managers
